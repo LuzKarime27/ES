@@ -1,1 +1,2 @@
-# ![VWELX](https://user-images.githubusercontent.com/83240379/118202528-c3639000-b41f-11eb-9f40-55f2dfa153d8.png)
+![acciones](https://user-images.githubusercontent.com/83240379/131522456-ffb8a592-f42b-43ae-97b1-5a9ac605802e.png)
+
